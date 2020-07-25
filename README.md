@@ -1,4 +1,4 @@
-Tera Ban Jaunga chords by Aryan Singh
+
 
 
                   
