@@ -1,76 +1,76 @@
 Tera Ban Jaunga chords by Aryan Singh
 
 
-B                  E
-Meri raahein tere tak hain
-G#m                 E
-Tujhpe hi toh mera haq hai
-B                E
-Ishq mera tu beshaq hai
-G#m               E
-Tujhpe hi toh mera haq hai
+                  
+(B)Meri raahein (E)tere tak hain
+                 
+(G#m )Tujhpe hi (E)toh mera haq hai
+               
+(B)Ishq mera tu (E)beshaq hai
+               
+(G#m)Tujhpe hi toh mera (E)haq hai
  
-[Verse 1]
-B                               E
-Saath chhodunga na tere piche aaunga
-G#m                              E
-Chheen lunga ya Khuda se maang laaunga
-B                               E
-Tere naal taqdeeran likhwaunga main
-G#m               E
-Main tera ban jaaunga
-G#m               E
-Main tera ban jaaunga
+
+                              
+(B)Saath chhodunga na tere piche (E)aaunga
+                              
+(G#m)Chheen lunga ya Khuda se maang (E)laaunga
+                               
+(B)Tere naal taqdeeran likhwaunga (E)main
+               
+(G#m)Main tera ban (E)jaaunga
+               
+(G#m)Main tera ban (E)jaaunga
  
-[Verse 2]
-B                              E
-Sonh teri main kasam yehi khaunga
-G#m                          E
-Kitte waadeya nu mana nibhaunga
-B                       E
-Tujhe har waari apna banaunga
-G#m             E
-Main tera ban jaaunga
-G#m              E
-Main tera ban jaaunga
+
+                     
+(B)Sonh teri main kasam yehi (E)khaunga
+                     
+(G#m)Kitte waadeya nu mana (E)nibhaunga
+             
+(B)Tujhe har waari apna (E)banaunga
+             
+(G#m)Main tera ban (E)jaaunga
+              
+(G#m)Main tera ban (E)jaaunga
  
-[Verse 3]
-B                         G#m
-Lakhaan ton juda main hui teri khaatir
-B                         G#m
-Tu hi manzil dil tera musaafir
-B                         G#m
-Lakhaan ton juda main hoya teri khaatir
-B                         G#m
-Tu hi manzil main tera musaafir
-B                         G#m
-Rab nu bhula betha tere karke
-E                B
-Main ho gaya kaafir
+
+                         
+(B)Lakhaan ton juda main hui teri (G#m)khaatir
+                         
+(B)Tu hi manzil dil tera (G#m)musaafir
+                         
+(B)Lakhaan ton juda main hoya (G#m)teri khaatir
+                         
+(B)Tu hi manzil main tera (G#m)musaafir
+               
+(B)Rab nu bhula betha tere (G#m)karke
+               
+(E)Main ho gaya (B)kaafir
  
-[Verse 4]
-B                        E
-Tere liye main jahaan se takraunga
-G#m                      E
-Sab kuch khoke tujhko hi paaunga
-B                     E
-Dil banke main dil dhadkaunga
-G#m            E
-Main tera ban jaaunga
-G#m           E
-Main tera ban jaaunga
+
+           
+(B)Tere liye main jahaan se (E)takraunga
+           
+(G#m)Sab kuch khoke tujhko hi (E)paaunga
+           
+(B)Dil banke main dil (E)dhadkaunga
+           
+(G#m)Main tera ban (E)jaaunga
+           
+(G#m)Main tera ban (E)jaaunga
  
-[Verse 5]
-B                         E
-Sonh teri main kasam yehi khaunga
-G#m                    E
-Kitte waadeya nu mana nibhaunga
-B                      E
-Tujhe har waari apna banaunga
-G#m             E
-Main tera ban jaaunga
-G#m            E
-Main tera ban jaaunga
+
+                        
+(B)Sonh teri main kasam yehi (E)khaunga
+                    
+(G#m)Kitte waadeya nu mana (E)nibhaunga
+                      
+(B)Tujhe har waari apna (E)banaunga
+             
+(G#m)Main tera ban (E)jaaunga
+            
+(G#m)Main tera ban (E)jaaunga
 
 
 
